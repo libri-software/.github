@@ -1,6 +1,6 @@
 ## Welcome to Libri Group 
 
-![welcome](https://user-images.githubusercontent.com/70757499/214137772-a87f2e15-d8ff-4d4e-bc80-d6850fba0121.png)
+![image](https://user-images.githubusercontent.com/70757499/219373310-844ab9c0-db9b-4046-bfc0-491af6026f2d.png)
 
 ➡️ Where **innovation** and technology collide to create sleek and cutting-edge products. 
 
